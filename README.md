@@ -1,0 +1,2 @@
+# Veg-Paneer-Chilli-Dry
+One of the best Indian Snacks "Paneer Chilli Dry". Learn how to make the most Consumed dish of Indo-Chinese Cuisine. You can make it just like Restaurant style. The recipe for Veg Paneer Chilli Dry is quite easy and simple to make without much ado. The Ingredients which are used in it are easily available in your Kitchen.                                                                                                                      SOURCE:-https://indiafoodnetwork.in/recipes/veg-paneer-chilli-dry/
